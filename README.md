@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TheLocalEgirl
+- 👀 I’m interested in gaming and coding
+- 📫 How to reach me Discord: TheJam#8130
